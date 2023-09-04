@@ -1,1 +1,0 @@
-# Oberlin Open Source Club!
